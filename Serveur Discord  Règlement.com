@@ -1,1 +1,1 @@
-1. ./Respect. ../Aucune insulte, harcèlement ou discrimination ne sera toléré..-
+.1. ./Respect. ../Aucune insulte, harcèlement ou discrimination ne sera toléré..-
