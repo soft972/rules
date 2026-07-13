@@ -1,2 +1,1 @@
-.1. ./hjhjtyjtyjty.
-../62959595989898.
+1. ./Respect. ../Aucune insulte, harcèlement ou discrimination ne sera toléré..-
